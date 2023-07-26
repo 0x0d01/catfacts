@@ -6,6 +6,7 @@
 - Many cats cannot properly digest cow's milk. Milk and milk products give them diarrhea.
 - A cat's field of vision is about 200 degrees.
 - According to Hebrew legend, Noah prayed to God for help protecting all the food he stored on the ark from being eaten by rats. In reply, God made the lion sneeze, and out popped a cat.
+- Cats bury their feces to cover their trails from predators.
 - A cat lover is called an Ailurophilia (Greek: cat+lover).
 - Cat's urine glows under a black light.
 - Cat's urine glows under a black light.
