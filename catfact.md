@@ -2,6 +2,7 @@
 
 - Neutering a cat extends its life span by two or three years.
 - A cat will tremble or shiver when it is extreme pain.
+- Cats bury their feces to cover their trails from predators.
 - A cat's field of vision is about 200 degrees.
 - According to Hebrew legend, Noah prayed to God for help protecting all the food he stored on the ark from being eaten by rats. In reply, God made the lion sneeze, and out popped a cat.
 - In just seven years, a single pair of cats and their offspring could produce a staggering total of 420,000 kittens.
