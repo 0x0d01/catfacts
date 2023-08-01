@@ -8,3 +8,5 @@
 - According to Hebrew legend, Noah prayed to God for help protecting all the food he stored on the ark from being eaten by rats. In reply, God made the lion sneeze, and out popped a cat.
 - A cat lover is called an Ailurophilia (Greek: cat+lover).
 - Cat's urine glows under a black light.
+- Cat's urine glows under a black light.
+- A cat can travel at a top speed of approximately 31 mph (49 km) over a short distance.
