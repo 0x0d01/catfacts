@@ -14,3 +14,5 @@
 - A cat can travel at a top speed of approximately 31 mph (49 km) over a short distance.
 - In Ancient Egypt, when a person's house cat passed away, the owner would shave their eyebrows to reflect their grief.
 - Tylenol and chocolate are both poisionous to cats.
+- Tylenol and chocolate are both poisionous to cats.
+- Cats spend nearly 1\/3 of their waking hours cleaning themselves.
