@@ -6,3 +6,5 @@
 - Many cats cannot properly digest cow's milk. Milk and milk products give them diarrhea.
 - A cat lover is called an Ailurophilia (Greek: cat+lover).
 - Neutering a male cat will, in almost all cases, stop him from spraying (territorial marking), fighting with other males (at least over females), as well as lengthen his life and improve its quality
+- Neutering a male cat will, in almost all cases, stop him from spraying (territorial marking), fighting with other males (at least over females), as well as lengthen his life and improve its quality
+- Cats have 32 muscles that control the outer ear (humans have only 6). A cat can independently rotate its ears 180 degrees.
